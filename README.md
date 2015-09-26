@@ -1,0 +1,2 @@
+# H-c-ti-ng-anh-t-ng-c-ng-kh-n-ng-giao-ti-p
+http://banganhvangiarehcm.blogspot.com/ Việc học một thứ ngôn ngữ khác không phải tiếng mẹ đẻ, bao giờ cũng đem lại cho bạn nhiều khó khăn, vì thế để học tốt tiếng Anh hay bất kì thứ tiếng nào khác đòi hỏi bạn phải có những động lực khá rõ ràng. Để giúp các bạn hiểu được tầm quan trọng và lợi ích của việc học Tiếng Anh, đồng thời giúp bạn có thêm những động lực thúc đẩy cho bạn, tôi sẽ nói về lợi ích từ việc học tiếng anh trong bài viết này, để bạn có thể có chiếc bang anh van chất lượng cao.
